@@ -1,0 +1,1 @@
+# inventario-activos-2026.
